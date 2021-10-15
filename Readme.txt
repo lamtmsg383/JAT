@@ -1,1 +1,1 @@
-Ok Man ! Ok Man ! Ok Man OK ậlkdfalksdfjalkdfjaksdfjaklsdjfakdsfjaksdfjaksdfjaksdfajkfasdkfajkdsfjakdfakkadfajk
+Làm ơn chạy giùm tui.
